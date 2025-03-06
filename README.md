@@ -1,4 +1,7 @@
 # Open Trip Thailand murah dengan pilihan paket wisata menarik
+
+<img src="https://asfatour.com/storage/images/01JNMP4E5PGRFG9TKSPX8YHP74.jpg" style="width: 100%;height:36rem" />
+
 Thailand dikenal sebagai salah satu destinasi favorit bagi wisatawan Indonesia. Dengan budaya yang kaya, kuliner yang menggoda, dan keindahan alam yang mempesona, tak heran kalau Thailand selalu jadi pilihan utama untuk liburan luar negeri. Bagi Anda yang mencari open trip Thailand murah, Asfatour Travel & Education siap memberikan pengalaman perjalanan terbaik dengan harga terjangkau!
 
 ## Kenapa Memilih Open Trip Thailand Bersama Asfatour Travel & Education?
